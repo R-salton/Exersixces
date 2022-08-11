@@ -1,2 +1,5 @@
 # Exersixces
 Udacity exercises
+klnjhwerqlekfkj
+dsjuhuuuirkue1uhggk3ek
+dewytqugyhjksl
